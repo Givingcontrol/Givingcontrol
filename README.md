@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Givingcontrol
-- 👀 I’m interested in using to Fem AI to Control rightt side of the /...
+- 👀 I’m interested in using Fem AI to Control rightt side of the /...
 - 🌱 I’m currently learning ...too much
 - 💞️ I’m looking to collaborate on ...Fembots
 - 📫 How to reach me ...gladiatorza69@gmail.com
